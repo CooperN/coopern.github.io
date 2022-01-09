@@ -1,6 +1,6 @@
 ## Cooper Norman
 
-Constantly curious. Solving the world's problems in small steps.
+Constantly curious.
 
 ### Socials
 
